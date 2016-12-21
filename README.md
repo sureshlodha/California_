@@ -1,1 +1,1 @@
-Link: http://sureshlodha.github.io/California_Interactive_Project_2015
+Link: http://sureshlodha.github.io/Thota_California_Projects_2015
